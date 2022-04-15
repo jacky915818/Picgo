@@ -2,7 +2,7 @@
 
 **爱好：喜欢研究稀奇古怪的东西！**
 
-<img src="C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20220413013645416.png" alt="image-20220413013645416"  />
+<img src="https://raw.githubusercontent.com/jacky915818/Picgo/main/image-20220413013645416.png" alt="image-20220413013645416"  />
 
 
 
